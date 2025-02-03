@@ -1,0 +1,28 @@
+- [ ] 4 months 3 weeks and 2 days (2007)
+- [ ] Les amours imaginaires 
+- [ ] Look away
+- [ ] Taipei story 1985
+- [ ] Fresh 
+- [ ] Nosferatu 1979
+- [ ] Voroshilov shooter 1999
+- [ ] La casa lobo 2018
+- [ ] Autumn sonata 1978
+- [ ] On the silver globe 1988
+- [ ] Cobweb 2023
+- [ ] Dans l’enfer 
+- [ ] Les salauds 
+- [ ] Trouble everyday 
+- [ ] A girl walks alone at night 
+- [ ] Thrist 2009
+- [ ] A Bruxa 
+- [ ] Exuma 
+- [ ] Lamb
+- [ ] Didi 2024
+- [ ] Charade 1963
+- [ ] MaDs 
+- [ ] Gummo 1997
+- [ ] Jesus camp (docu)
+- [ ] Caregiver (YouTube short film horreur)
+- [ ] Sissy (horreur)
+- [ ] Suzhou river
+
